@@ -1,0 +1,2 @@
+# Plagiarism-removal-service
+Before installing any anti-spyware program, ensure that it is compatible with your system. It means that before using any program to fight against plagiarism, you need to check its compatibility with your PC. If you encounter any problem while using the program, uninstall it immediately. If you cannot do so manually, seek help from a reliable Plagiarism Removal Assistance Service provider.
